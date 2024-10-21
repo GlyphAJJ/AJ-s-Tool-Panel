@@ -9,7 +9,7 @@ AJ's Tool Panel:
 *If anyone Wants me to make them a Tool Panel but personalised for them Dm me on discord cuz im bored anyway @glyphaj*
 *I HOPE EVERYONE LIKES IT*
 
-~~~ Extra ~~~
+WINDOWS ONLY
 
 [+] Easy To Use
 [+] Batch
