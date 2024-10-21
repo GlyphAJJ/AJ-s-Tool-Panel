@@ -15,3 +15,7 @@ WINDOWS ONLY
 [+] Batch
 
 Made by @glyphaj
+
+If u wanna help me earn some money go here:
+
+https://link-hub.net/1246074/aj-tool
